@@ -1,0 +1,1 @@
+# manoamanomimanoamano.github.io
